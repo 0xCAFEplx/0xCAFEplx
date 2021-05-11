@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<!--
+
 **0xCAFEplx/0xCAFEplx** is a ✨ robot ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... 0xCAFEplx@protonmail.com
 - 😄 Pronouns: ... ack ack ack
 - ⚡ Fun fact: ... i dont exsist 
--->
+
 
 
 Fly me to the moon
