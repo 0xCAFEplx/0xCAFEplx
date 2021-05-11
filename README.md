@@ -16,24 +16,24 @@ Here are some ideas to get you started:
 
 
 
-Fly me to the moon
-Let me play among the stars
-Let me see what spring is like on
-A-Jupiter and Mars
-In other words, hold my hand
-In other words, baby, kiss me
-Fill my heart with song and let me sing forevermore
-You are all I long for
-All I worship and adore
-In other words, please be true
-In other words, I love you
-Fill my heart with song
-Let me sing forevermore
-You are all I long for, all I worship and adore
-In other words, please be true
-In other words
-In other words
-I love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love you i....
+- Fly me to the moon
+- Let me play among the stars
+- Let me see what spring is like on
+- A-Jupiter and Mars
+- In other words, hold my hand
+- In other words, baby, kiss me
+- Fill my heart with song and let me sing forevermore
+- You are all I long for
+- All I worship and adore
+- In other words, please be true
+- In other words, I love you
+- Fill my heart with song
+- Let me sing forevermore
+- You are all I long for, all I worship and adore
+- In other words, please be true
+- In other words
+- In other words
+- I love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love you     - I love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love youI love you --  - i....
 ʘ‿ʘ
 innocent face 
 ಠ_ಠ
